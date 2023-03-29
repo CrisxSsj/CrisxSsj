@@ -10,4 +10,6 @@
 
 😊 Pronouns: Cris.
 
+👶🏻   💗 Pasatiempos : Jugar videojuegos , Fútbol , Bailar , dibujar y cantar.
+
 📚Estudios: Comenze a sacar diplomas desde secundaria como "2do mejor alumno" , estudie 1 año de computacion , estudie 1 año de dactilografía , estudie 1 año de lectura veloz y Medio año de ingles.
