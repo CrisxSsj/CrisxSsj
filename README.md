@@ -1,16 +1,10 @@
 ### Hola a todos<3 👋
+### 😻 Actualmente estoy aprendiendo a programar.
+###💗Preguntame sobre computacion.
+###💌 How to reach me: @Cristiangames862@gmail.com
+###😊 Pronouns: Cris.
+###📚 Fun fact: Estudie 1 año de computacion 
+Estudie 1 año de dactilografía
 
-<!--
-**CrisxSsj/CrisxSsj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🌱 I am currently learning to program.
-- 💬Ask me about computing.
-- 📫 How to reach me: @Cristiangames862@gmail.com
-- 😄 Pronouns: Cris.
-- ⚡ Fun fact: I studied 1 year of computing
-Study 1 year of typing
-
-Study 1 year of speed reading
-Half a year of English.
+Estudie 1 año de lectura veloz
+Medio año de ingles.
