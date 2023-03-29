@@ -1,5 +1,7 @@
 ### Hola a todos<3 👋
 😻 Actualmente estoy aprendiendo a programar.
+
+
 💗Preguntame sobre computacion.
 💌 How to reach me: @Cristiangames862@gmail.com
 😊 Pronouns: Cris.
