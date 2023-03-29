@@ -1,4 +1,4 @@
-### Hola a todos<3 👋
+### Hola a todos<3💪🏻💗
 😻 Actualmente estoy aprendiendo a programar.
 
 💗Preguntame sobre computacion.
