@@ -1,4 +1,5 @@
-![Aspose Words c94e7f72-a11d-4a42-9cb8-887805c95091 001](https://user-images.githubusercontent.com/127448155/228421293-2952821d-f855-418e-b6ae-973e2c9e50c6.jpeg)
+![5d985df0cd0f964ea75f0cf94fe2d092](https://user-images.githubusercontent.com/127448155/228423043-e5b162bd-ba29-49d2-adf9-45a6211ba4f7.gif)
+
 
 ### Hola.💪🏻💗
 😻 Actualmente estoy aprendiendo a programar.
