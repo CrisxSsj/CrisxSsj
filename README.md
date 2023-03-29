@@ -7,7 +7,4 @@
 
 😊 Pronouns: Cris.
 
-📚 Fun fact: Estudie 1 año de computacion 
-Estudie 1 año de dactilografía
-Estudie 1 año de lectura veloz
-Medio año de ingles.
+📚 Fun fact: Estudie 1 año de computacion , Estudie 1 año de dactilografía , Estudie 1 año de lectura veloz y Medio año de ingles.
