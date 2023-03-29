@@ -4,10 +4,10 @@
 ### Hola.💪🏻💗
 😻 Actualmente estoy aprendiendo a programar.
 
-💗Preguntame sobre computacion.
+💗Preguntame sobre computacion y ingles<3.
 
 💌 How to reach me: @Cristiangames862@gmail.com
 
 😊 Pronouns: Cris.
 
-📚 Fun fact: Estudie 1 año de computacion , Estudie 1 año de dactilografía , Estudie 1 año de lectura veloz y Medio año de ingles.
+📚Estudios: Comenze a sacar diplomas desde secundaria como "2do mejor alumno" , estudie 1 año de computacion , estudie 1 año de dactilografía , estudie 1 año de lectura veloz y Medio año de ingles.
