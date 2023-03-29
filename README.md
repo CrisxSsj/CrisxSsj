@@ -1,4 +1,5 @@
-282536805_544947033851223_4342246558030228351_n.hdr
+![Aspose Words c94e7f72-a11d-4a42-9cb8-887805c95091 001](https://user-images.githubusercontent.com/127448155/228421293-2952821d-f855-418e-b6ae-973e2c9e50c6.jpeg)
+
 ### Hola.💪🏻💗
 😻 Actualmente estoy aprendiendo a programar.
 
