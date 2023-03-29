@@ -1,4 +1,8 @@
-### Hola a todos<3💪🏻💗
+https://media.giphy.com/media/GaFCzhmAbkhSo/giphy.gif
+
+
+
+### Hola.💪🏻💗
 😻 Actualmente estoy aprendiendo a programar.
 
 💗Preguntame sobre computacion.
